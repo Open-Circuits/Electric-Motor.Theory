@@ -1,0 +1,1 @@
+- [Washing Machine Motor AC and DC - High Power Dimmer](https://youtu.be/se8cHtnSUFI)
